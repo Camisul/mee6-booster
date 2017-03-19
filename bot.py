@@ -1,5 +1,4 @@
 # 274597252880662528
-# discore
 # batishkin gosteva9a 259124796971941890
 # discord.gg/bratishkin
 
